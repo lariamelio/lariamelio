@@ -10,7 +10,7 @@ Meu nome é Larissa Amélio
 
   larissa.amelio@escola.pr.gov.br
 
-  insta: @larismelioo
+  insta: @larissaamelioo
 
 
 ![](https://media.tenor.com/OXfKQ4nIrIgAAAAC/dance-gravity-falls.gif)
